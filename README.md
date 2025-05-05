@@ -1,0 +1,1 @@
+# Seguran-adigital2025
